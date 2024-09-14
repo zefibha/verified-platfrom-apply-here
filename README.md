@@ -1,1 +1,1 @@
-# verified-platfrom-apply-here
+# page-verified-here-apply
